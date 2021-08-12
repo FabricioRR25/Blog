@@ -1,0 +1,8 @@
+![eu na segunda](https://user-images.githubusercontent.com/80205522/129239977-de63a25a-eb84-4008-bde5-ab626a7ae795.jpg)
+![evangélicos](https://user-images.githubusercontent.com/80205522/129239983-a76cfcc1-1d50-413e-bc9e-c15bf3dd6b0d.jpg)
+![fb_icon_325x325](https://user-images.githubusercontent.com/80205522/129239984-ac8b393d-abcb-40a3-9873-70dbd2250448.png)
+![foto](https://user-images.githubusercontent.com/80205522/129239985-e0367790-cdeb-4a44-b421-ca95a41f57ac.jpg)
+![header](https://user-images.githubusercontent.com/80205522/129239990-687e3ad9-8244-47a9-85a8-abc98d4935e3.jpg)
+![instagram](https://user-images.githubusercontent.com/80205522/129239993-54bf4016-6522-433c-9854-4eb45d04a0a6.png)
+![simplicidade](https://user-images.githubusercontent.com/80205522/129239995-0c8406da-75de-49ac-8ffe-79cf08f34dd7.jpg)
+![twitter](https://user-images.githubusercontent.com/80205522/129240000-8dee9ba0-37cb-4a7e-8e4c-011ff97d9750.jpg)
